@@ -8,3 +8,5 @@ Art, music, funkadelia, anything really
 New wrinkles in grey matter...I hope
 
 La verdad es que soy nuevo 
+
+The front door of a white hole, staying still
