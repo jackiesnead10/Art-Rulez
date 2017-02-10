@@ -7,4 +7,4 @@ Art, music, funkadelia, anything really
 
 New wrinkles in grey matter...I hope
 
-Lets see what happens
+La verdad es que soy nuevo 
